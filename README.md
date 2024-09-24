@@ -16,4 +16,3 @@
 
 
 **That's all, thank you.**
-![image](https://github.com/user-attachments/assets/56ebcd85-d00e-4ef7-b793-bd20f7a180d0)
