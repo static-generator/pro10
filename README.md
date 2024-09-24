@@ -1,6 +1,10 @@
 # pro10 
 ## Marthea Franzmine C. Canlas 
 **The things I enjoy:**
+
+
+
+
 I enjoy baking!😼
 ![image](https://github.com/user-attachments/assets/886bef21-3a85-4d3a-a29b-4c2e309e6b89) 
 
