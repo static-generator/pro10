@@ -10,7 +10,8 @@ I enjoy baking!😼
 
 
 I enjoy watching movies
-![image](https://github.com/user-attachments/assets/8934ca26-3270-4248-a6de-9b38565b6465)
+
+
 ![image](https://github.com/user-attachments/assets/85ddcb7d-887b-4b1d-adbe-60fb34a8fccd)
 
 
